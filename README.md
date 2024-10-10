@@ -7,7 +7,7 @@
 - ⚡ Curiosidade: Eu sou bom nas coisas que faço, gosto de café e animes tenho mais 2 contas no git hub pra minha diversão e gosto de tocar. 🍙🍦☕
 
 - prazer em conhece-los 😁
-- queria dizer que quero colaborar com todos😎🎆
+- queria dizer que quero colaborar com todos😎🎆👍🎉
   
 
 <!---
